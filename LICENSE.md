@@ -1,4 +1,4 @@
-
+Get ahead in sol's rng with sol's rng custom Scripts, featuring infinite resources and silent aim. Download now to dominate every match with ease and confidence, thanks to its
 
 
 
